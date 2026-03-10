@@ -1,2 +1,2 @@
 # GameZ2A
-First day, Im gay
+First day, Im gayzz
